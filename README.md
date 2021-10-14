@@ -1,1 +1,0 @@
-# github-violance-against-bitcoin-programmers
